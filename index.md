@@ -16,3 +16,5 @@ Bengaluru, India
 ### Support or Contact
 
 More more details please contact us at info@abcrlabs.com or call +91-7972696439.
+
+[Privacy Policy](http://www.abcrlabs.com/privacy-policy.html)
